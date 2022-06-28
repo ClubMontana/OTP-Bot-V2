@@ -1,2 +1,2 @@
 # New OTP Bot Soon
-- Join https://discord.gg/aSncK6nDr8 for some news
+- Join https://discord.gg/YCu4DKPqp8 for some news
